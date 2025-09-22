@@ -1,2 +1,2 @@
 # FREEPALESTINE
-Send emails to the UN NOW!
+[https://lifelineforpalestine.com/take-action](https://lifelineforpalestine.com/take-action)
