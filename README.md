@@ -1,5 +1,4 @@
-# FREEPALESTINE
-[https://lifelineforpalestine.com/take-action](https://lifelineforpalestine.com/take-action)
+# [https://lifelineforpalestine.com/take-action](https://lifelineforpalestine.com/take-action)
 ---
 ## "Letter to President Mahmoud Abbas and Ambassador Riyad Mansour, Requesting a Multinational Protection Force through Uniting for Peace"
 **Recipients**
